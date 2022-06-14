@@ -2,7 +2,7 @@
 
 永久地址！
 
-地址1️⃣：https://share.mypitaya.com/fileshare/ozUU0UknGqbXjJM_l7dKPaStCu5EcypHbQB4JjVHHicUWWaAqg97fzmqtOoDt9B2 
+地址1️⃣：https://share.mypitaya.cn/fileshare/zOtuRNjHJImy_Zg9V33l929eZQOLkHjLf77AHnwehv498lAfypoAU-i_vvmNqinu
 
 地址2️⃣：https://github.com/233202/YZ.git
 
