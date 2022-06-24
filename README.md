@@ -1,8 +1,6 @@
-密码个论坛网站免费拿！
+几百个论坛地址永久免费，实时更新！
 
-永久地址！
-
-地址1️⃣：https://share.mypitaya.cn/fileshare/zOtuRNjHJImy_Zg9V33l929eZQOLkHjLf77AHnwehv498lAfypoAU-i_vvmNqinu
+地址1️⃣：https://p-1tf8.tower.im/p/iy7n
 
 地址2️⃣：https://github.com/233202/YZ.git
 
